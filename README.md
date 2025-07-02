@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: i really love matcha
+- ⚡ Fun fact: i really love matcha ˙ ✩°˖🍵 ⋆｡˚꩜
 
 <!---
 karensampouw2344/karensampouw2344 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
