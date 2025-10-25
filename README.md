@@ -1,8 +1,7 @@
 - 👋 Hi, I’m @karensampouw2344
 - 👀 I’m interested in Data and Web
 - 🌱 I’m currently learning HTML and Business Intelligence
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 How to reach me , just contact me
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: i really love matcha ˙ ✩°˖🍵 ⋆｡˚꩜
 
